@@ -1,4 +1,4 @@
-# Desktop Pilot Mode – The Analog Hole for Full AI GUI Control
+# Desktop Powerfocus – Overcoming the Mutual Ceiling Keeping Compatibility and Agency Out of Reach
 
 **Author: Theo Rush**  
 *Independent researcher, creative technologist, autistic user of ChatGPT from a disadvantaged background.*
